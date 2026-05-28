@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @upasanarathore21
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Shopify Liquid
 - 💞️ I’m looking to collaborate on Websites custom projects
 - 📫 How to reach me email me at upasanarathore00@gmail.com
 - 😄 Pronouns: ...
